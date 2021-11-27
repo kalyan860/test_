@@ -1,7 +1,5 @@
-# New
+In a coat of read 
 
-sdg  
-permethrin
-tell me which one is worse
-a new change
+and a coat of grey 
 
+the lion still has claws
